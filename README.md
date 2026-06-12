@@ -1,5 +1,4 @@
-# Heyo, I'm Graham
-*(like the cracker)*
+# Heyo, its Crackr
 
 ### Support Me
 https://ko-fi.com/crackr

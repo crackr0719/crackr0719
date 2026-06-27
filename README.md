@@ -1,4 +1,2 @@
 # Heyo, its crackr
-
-### Support Me
-https://ko-fi.com/crackr
+I don't have much to say.
